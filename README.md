@@ -1,1 +1,4 @@
 # NgentodFb
+
+JANGAN DI REEDIT YANG TOD
+FUCK
